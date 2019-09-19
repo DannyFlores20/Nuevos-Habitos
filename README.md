@@ -26,3 +26,11 @@ El cerebro recuerda mejor los recuerdos multisensoriales, por lo que para crear 
 
 ## Define el hábito que quieres cultivar
 Para definir que hábito quieres cultivar debes tenener muy claro el **¿Qué?**, **¿Cuánto?**, **¿Cómo?**, **¿Por qué?** de dicho hábito; de esta manera tienes un idea más clara de lo que quieres lograr y evitas que tu mente subconsiente regrese a lo que ya conoce, haciendo más dificil la tarea de crear un nuevo hábito, por lo que trata de definir clara y detallamente el hábito que quiere lograr.
+
+# 3. Importancia de los Hábitos
+En la vida cotidiana uno de los elementos más determinantes de la organización y la eficiencia es la capacidad de desarrollar hábitos que nos permitan realizar nuestras actividades de la mejor manera posible. La importancia de los hábitos se vincula también con la posibilidad de planear y proyectar mejor a futuro.
+
+# 4. Los hábitos y su dimensión cultural
+al como lo señalamos, los hábitos son costumbres que todos los humanos desarrollamos en mayor o menor medida. Lo que nos hace diferentes es el tipo de tradiciones que cada comunidad implementa. Así, no son iguales los hábitos de comida, de comportamiento, de saludo, de respeto, de trabajo en países occidentales que en países orientales, como tampoco son iguales los hábitos que se desarrollan en países del Primer o del Tercer Mundo respecto a un sinfín de acciones.
+
+Esto nos prueba que las actividades que realizamos, la forma, la rutina y la frecuencia con la que las hacemos dependen también de la cultura de la cual somos parte.
