@@ -31,6 +31,17 @@ Para definir que hábito quieres cultivar debes tenener muy claro el **¿Qué?**
 En la vida cotidiana uno de los elementos más determinantes de la organización y la eficiencia es la capacidad de desarrollar hábitos que nos permitan realizar nuestras actividades de la mejor manera posible. La importancia de los hábitos se vincula también con la posibilidad de planear y proyectar mejor a futuro.
 
 # 4. Los hábitos y su dimensión cultural
-al como lo señalamos, los hábitos son costumbres que todos los humanos desarrollamos en mayor o menor medida. Lo que nos hace diferentes es el tipo de tradiciones que cada comunidad implementa. Así, no son iguales los hábitos de comida, de comportamiento, de saludo, de respeto, de trabajo en países occidentales que en países orientales, como tampoco son iguales los hábitos que se desarrollan en países del Primer o del Tercer Mundo respecto a un sinfín de acciones.
+Tal como lo señalamos, los hábitos son costumbres que todos los humanos desarrollamos en mayor o menor medida. Lo que nos hace diferentes es el tipo de tradiciones que cada comunidad implementa. Así, no son iguales los hábitos de comida, de comportamiento, de saludo, de respeto, de trabajo en países occidentales que en países orientales, como tampoco son iguales los hábitos que se desarrollan en países del Primer o del Tercer Mundo respecto a un sinfín de acciones.
 
 Esto nos prueba que las actividades que realizamos, la forma, la rutina y la frecuencia con la que las hacemos dependen también de la cultura de la cual somos parte.
+
+# 5. Conclusión sobre el cambio de habitos.
+A veces sucede que no logras conseguir al 100% el hábito que buscabas en el tiempo establecido, esto solo quiere decir que necesitas más tiempo y hacer ajustes a tus estratejias, debes asignar un tiempo extra después de un descanso de 3 a 5 días dedica unas 3 a 6 semanas haciendo un análisis previo que te permita ajustar tu estratejia, revisa tus influencias externas como amigos, trabajo y redes sociales para filtrar los comportamientos no deseados.
+
+###### Pequeña lista de trucos o "Hacks"
+
++ Usar colores en tu vitácora facilita el registro de avances.
++ Puedes asignar un castigo si no adquieres el hábito.
++ Si trabajas en aprender un nuevo idioma empieza aprendiendo unas 50 palabras de uso diario para incluirlas en tu día a día.
++ Si tu hábito se centra en la comunicación escribe e imagina nuevas formas de habar con las persona.
++ Si tu hábito es físico empieza midiendo tiempo y no distancia o esfuerzo, de igual forma si tu habito es la meditación.
