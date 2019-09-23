@@ -7,13 +7,15 @@ Trata de como cambiar o crear hábitos nuevos de manera personal como laboral y 
 
 ## ¿Qué son los hábitos?
 Los hábitos son conductas que repetimos muchas veces hasta que forman parte de nuestras actividades diarias. De esta manera, luego de un tiempo los hábitos se vuelven automáticos como por ejemplo lavarse los dientes, tomar una ducha, conducir una bicicleta , utilizar cubiertos entre muchos mas , son habitos que ya no pensamos como se hacen  si no que se hace sin persarlo de manera automatica.
-Los hábitos son todos los comportamientos, pensamientos y emociones que el cerebro usa de manera automatica sin la interverción de nuestra 
-mente consciente.
+Los hábitos son todos los comportamientos, pensamientos y emociones que el cerebro usa de manera automatica sin la interverción de nuestra mente consciente.
+Podemos decir que el hábito es un mecanismo evolutivo para la optimización de recursos psicológicos. Un hábito es un patrón automático, que hacemos sin pensar para poder hacer el máximo de cosas con el mínimo esfuerzo, es decir, para aumentar la eficiencia en el cerebro y el cuerpo.
+Los hábitos nos permiten funcionar en modo piloto automático mientras realizamos las tareas de forma inconscientes: lavar los platos, atarnos los zapatos, conducir, etc… es decir, sin esfuerzo. 
 
 ## Cómo se forman los hábitos.
 Los hábitos se forman repitiendo una misma acción durante un periodo de tiempo, muchos de ellos se los aprende desde pequeños repitiendo cosas una y otra vez por ejempo tomar café con la mano izquierda , andar en bicicleta, etc.
 Para tener un hábito nuevo se necesita de repetición y referencias como de pequeños nuestras referencias erán nuestros padres  ya de grandes las referencias pueden ser otras personas en el mundo fisico que ya tienen ese hábito que queremos adquirir, tambien pueden ser fotos, videos , audios, etc.
-
+Para crear nuevos hábitos, debemos crear carreteras nuevas en nuestra mente. Estas carreteras de entrada serán lentas y costosas. Pero a medida que circulemos por ellas de forma regular se convertirán en nuevas autopistas por las que ya no nos cueste circular.
+La cuestión es que, si las autopistas que queremos crear nos resultan demasiado lentas y demasiado costosas, en definitiva, si lo que nos proponemos requiere demasiado esfuerzo, nuestra mente, a la que le cuesta cambiar hábitos ya adquiridos precisamente porque no le resultan costosos, se revelará y hará todo lo posible por sabotear estas nuevas iniciativas.
 
 ## Mente consciente vs mente subconsciente
 Tienen similitudes y diferencias cuando estamos trabajando en crear hábitos nuevos. La diferencia entre estas dos que la mente consciente puede discernir que informacion acepta  y que información desecha de lo que la mente subconsciente no puede , la mente consciente puede elegir que pensamientos crear y dejar crecer, la mente subconsciente  crea pensamientos u objetos de manera automatica  como respuesta a todo los que percibe entre otras más , entre sus similitudes es que ambas mentes piensan en imagenes y palabras.
@@ -45,3 +47,13 @@ A veces sucede que no logras conseguir al 100% el hábito que buscabas en el tie
 + Si trabajas en aprender un nuevo idioma empieza aprendiendo unas 50 palabras de uso diario para incluirlas en tu día a día.
 + Si tu hábito se centra en la comunicación escribe e imagina nuevas formas de habar con las persona.
 + Si tu hábito es físico empieza midiendo tiempo y no distancia o esfuerzo, de igual forma si tu habito es la meditación.
++ Tener una buena razón para instaurar ese hábito.
++ Cuéntaselo a todo el mundo.
++ Imagina como te sentirás con ese nuevo hábito.
++ Condiciona ese hábito a una señal externa temporal.
++ Ayúdate de elementos externos.
++ Cambia la forma de hablarte tanto a ti mismo como a los demás.
++ Poco a poco.
++ Se concretó.
++ No dejes nunca de practicar el nuevo hábito dos días seguidos.
++ Premia tus avances.
